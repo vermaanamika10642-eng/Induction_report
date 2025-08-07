@@ -1,4 +1,5 @@
 # Induction_report
+BRANCH:-CSE(A1)
 # DAY 1:-8:30 to 9:30 shabad kirtan in gurdwara sahib
 9:30 to 10:00:- refreshment party
 10:00  harsimran singh sir:-(college infrastructure , college facility,any offers for college )
