@@ -15,4 +15,6 @@ he is ex cabinate minister of punjab as well as he is senior trust off nankana s
 11.30 to 1:00 break
 1:00to 2.00 :-expert lecture of dr.arashdeep singh on "food. A pivotal role in students overall wellness:-auditorium
 2:00 to 3:00:- casumic club information and launch other induction activies :-auditorium
+# DAY 3(2-8-25) :- 9AM to 11 Am (dr jaswinder singh sir) he is expert for IAPT .he guide many experiment to related science.for e.g=waves experiment,etc
+11AM to 1AM:- dr.priya drashni mam (she guide universal human values.she explain happiness,mutal happiness, physical facilities,excitement,relationship,etc.)she was very more experience to teach students.
 
