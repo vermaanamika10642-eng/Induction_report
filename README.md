@@ -14,15 +14,15 @@ he is ex cabinate minister of punjab as well as he is senior trust off nankana s
 10.30 to 11.30 math proficiency test
 11.30 to 1:00 break
 1:00to 2.00 :-expert lecture of dr.arashdeep singh on "food. A pivotal role in students overall wellness:-auditorium
-2:00 to 3:00:- casumic club information and launch other induction activies :-auditorium
-#Day 3
+2:00 to 3:00:- casumic club information and launch other induction activies :-auditorium 
+# Day 3:-
 The next day started with a very interesting session by Dr. Jaswinder Singh. He has made three world records. He is famous for his Jaswins Lab on wheels
 
 He made difficult concepts of science and mathematics very easy to understand by some very interesting experiments which seemed like a magic to the viewers.He not just only gave us academic knowledge in an extraordinary way but also gave us spiritual knowledge about Gurbani,Guru Nanak Dev Ji,Ik Onkar and God.This was one of my favourite sessions till then.
 
 The day just not ended there was another amazing expert lecture by Dr. Priya Darshani Madam on Universal Human Values(UHV),a subject that delves into the essence of what it means to live a fulfilling and contented life. It was an interactive session.We explored the concept of happiness and the state of contentment, discussing how these states of mind influence our everyday actions and decisions. The session was enlightening, providing a fresh perspective on how we can achieve true happiness. She also gave us an assignment which she would discuss with us in the next session. The day was very interesting for me.
 
-Day 4
+# Day 4:-
 The day started with new opportunities and hope to learn new things.I reached the allotted classroom at 9.15am and the first that was P2P session started at 9.30am and lasted upto 10.30am . This session was a PPS Session by our seniors which made us learn many new things in a comfortable manner.Next was BEEE session which whole went in our introduction. Then we had our lunch break from 11.30am to 12.30pm.
 
 Universal Human Values
@@ -35,7 +35,7 @@ Then there was a session by causmic club.They introduced their club to the stude
 
 Then at last there was a session in which we were told all the necessary things to keep in mind before taking a laptop.Then there were a few performances which ended the day in a very beautiful manner.
 
-Day 5
+# Day 5:-
 It was day 5 of our Induction programme. We had our first lecture of Chemistry from 9.30am to 10.30am by Karan Bhalla Sir. He started with introduction and then told us about the examination,marks and grade system. He is a very kind personality.After that he discussed with us some topics of our syllabus. Then we had our English lecture by Prof. Nisha . She taught us the communication skills. She started with an activity to introduce ourselves for about 30 seconds.She gave us 5 minutes to think and then she randomly picked students asked them to introduce. It made us more confident and interactive.Then we had our lunch break.
 
 After that our first speaker of the day of induction programme was Sir Gurcharan Singh Grewal Ji . He talked about his life as a student and manager in GNDEC. He taught us about the Fundamentals of Guru Nanak
@@ -48,7 +48,7 @@ He also said that we should respect teachers as well as their knowledge. Listeni
 CML : Centre for Multi-faceted Learning
 After that there was session by Lakhvir Singh Khana on CML (Centre for Multi-faceted Learning).It was mainly an introductory session to CML. He told us about the activities under CML and about its sponsors. He motivated us to do more but with full sincerity.
 
-Day 6
+# Day 6 :-
 Today marked the sixth day of our Induction programme. Induction programme started in the auditorium.
 
 Dean Student Welfare
@@ -64,7 +64,7 @@ Then we had our lunch break.
 
 After that we proceeded to ME Seminar hall and attended our lecture of BEEE by Madam Prof. Harminder Kaur. She taught us the subject very well. She started the syllabus with the chapter DC Circuit. She made a very good explanation. I understood each and every topic.Then there was a P2P session which was very much an interactive session.
 
-Day 7
+# Day 7:-
 Millets: Super Food
 First of all we had a lecture by Mrs. Shaffy Makkar. Her topic was Millets: Super Food. She told us about how important is it to include millets in our diet. She told us about the different types of millets, how these cure type 1 and 2 diabetes. She told us that millets contain high fibre and protein content. These only became less popular after Green Revolution. So now its the need to again include millets in our diet to stay fit and healthy.
 
